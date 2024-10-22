@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Eduardo Cesar
-- 👀 I’m interested in finishing school
+- 👀 I’m interested in finishing school, once and for all
 - 🌱 I’m currently learning... I don't know what I'm learning
 - 💞️ I’m looking to collaborate on a charity to help poor people in acquiring basic human needs like Fortnite
 - 📫 You can reach me trough the sewer and out of my sink
